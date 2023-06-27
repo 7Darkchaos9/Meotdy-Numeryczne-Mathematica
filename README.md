@@ -1,0 +1,1 @@
+# Meotdy-Numeryczne-Mthematica
